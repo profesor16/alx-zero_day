@@ -1,1 +1,1 @@
-I can see the future
+great
